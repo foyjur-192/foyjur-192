@@ -23,4 +23,4 @@
 
 
 
-https://img.freepik.com/premium-vector/programmer-semi-flat-color-vector-character-student-figure-sitting-person-white-man-computer-desk-coding-isolated-modern-cartoon-style-illustration-graphic-design-animation_151150-5964.jpg?w=1380
+
